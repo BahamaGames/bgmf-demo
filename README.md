@@ -1,1 +1,1 @@
-[Click](demo.bahamagames.com](http://demo.bahamagames.com/)http://demo.bahamagames.com/) to try now
+[Click to try now](http://demo.bahamagames.com/)
